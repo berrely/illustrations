@@ -1,0 +1,1 @@
+ALL FILES IN THIS FOLDER ARE EXTRACTED FROM A PDF OR WEBSITE. This does not mean you are free to use them, as they are protected by copyright/trademakrs in their relevant jurisdiction. USE AT YOUR OWN RISK!
